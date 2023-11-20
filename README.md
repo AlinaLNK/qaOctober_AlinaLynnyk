@@ -1,0 +1,1 @@
+# qaOctober_AlinaLynnyk
